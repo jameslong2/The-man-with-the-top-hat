@@ -9,7 +9,7 @@ wears the top hat.</br>
 </br>
 "Power will it be?</br>
 Or perhaps the same wish,</br>
-that king Midas wished..."</br>
+that king Midas did..."</br>
 </br>
 "Riches I do not desire,</br>
 but what i need,</br>
