@@ -14,7 +14,7 @@ that king Midas did..."</br>
 "Riches I do not desire,</br>
 but what i need,</br>
 a pair of eyes so deep,</br>
-that people's soul I may see</br>
+that people's soul I may see"</br>
 </br>
 "It has been granted.</br>
 Sir, may I suggest?</br>
